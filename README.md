@@ -1,4 +1,4 @@
-Hi! Someday I will be able to learn the jargon!
+I'm still hangin' in here!
 
 <!---
 andypaulchen/andypaulchen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
