@@ -1,4 +1,4 @@
-I'm still hangin' in here!
+I'm here to FAFO and drink milk, and I'm all out of milk
 
 <!---
 andypaulchen/andypaulchen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
